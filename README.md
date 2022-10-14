@@ -9,5 +9,5 @@ Soy un egresado de la carrera de **biología marina** :tropical_fish: en busca d
 - 📫 How to reach me: send me an email at mauriciorodriguez864@gmail.com
 - 😄 Pronouns: He, him, his.
 
-![image](https://user-images.githubusercontent.com/93553489/182472439-86ecc998-472a-457c-b2ad-2633757191cf.png)
+
 
